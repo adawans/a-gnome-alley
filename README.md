@@ -64,7 +64,7 @@ Pick one. Improvise. Combine. Distort reality.
 14. Make a thing behave as if it’s alive.  
 15. Obscure something so that only a curious person could find it.  
 16. Simulate a message meant for someone else.  
-17. Make a space feel haunted—but gently.  
+17. Make a space feel haunted, but gently.  
 18. Add something invisible that you must pretend is real.  
 19. Change the order of things to imply a different logic.  
 20. Make a trace of an action that didn’t happen.
